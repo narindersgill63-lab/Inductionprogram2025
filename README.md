@@ -12,4 +12,4 @@
 * ENGINEER RAKESH KUMAR(an illustrious alumnus of the batch 1991 and currently the ADC,Ludhiana)
 ## Further,SHRI ASHOK SINGLA(Financial Advisor) too interacted with students and helped them view their future with his practical insights and motivating words.
 ## At last, students visited their respective departments and labs where more information about academics was provided to them by various faculity member.
-## It was a remarkable day for all CSE & IT students for them a powerful start to thier proffessional and academic life.
+## Overall,it was a remarkable day for all CSE & IT students for them a powerful start to thier proffessional and academic life.
