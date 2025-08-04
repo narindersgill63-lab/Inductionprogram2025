@@ -1,7 +1,7 @@
 # INDUCTION PROGRAM 2025
 ## Day1
 #### Induction program for B.Tech first year students was held in GURU NANAK DEV ENGINEERING COLLEGE, LUDHIANA on 31st july,2025 with great energy and excitement to warmly welcome the freshers of Computer Science and Information Technology branches.
-#### The event took a great start with shabad kirtan at Gurudwara Sahib from 8:30 am to 9:30 am providing all the newly admitted students with blessing of almighty God for starting an exciting journey of their life at GNDEC.
+#### The event took a great start with shabad kirtan at Gurudwara Sahib from 8:30 am to 9:30 am providing all the newly admitted students with blessing of almighty God for starting an exciting journey of their life at GNDEC.I felt peaceful and really blessed being part of such program.
 [link](https://www.facebook.com/share/r/19hihXtE6z/) 
 #### Proper arrangement for tea and snacks too were made for all the students.
 #### The inaugral session was started in the college auditorium with inroducing the students to to the legacy,vission,mission and values of this prestigious intstitution by Mr. HARSIMRAN SINGH JAGGI who further provided students with information about facilities,acedamic excellence,research support and varioues other opportunities that GNDEC offers.
@@ -24,3 +24,10 @@
 #### Another wonderful day of 4-year journey started at 9:00 am with an expert lecture by Dr.JASWINDER SINGH(Education Professional ,Science Communicator and Innovator)who energetically interated with students and provided them magical knowledge about inter-relation of God and Science along with really fun experiments  keeping all the students atentive and engaged.This session aided students in awaring the significance of meditation and introspection in daily lives.
 #### While this amazing lecture ended,another impactful lecture by Dr.PRIYA DARSHINI madam commenced on "Basic Human Aspiration and its Fulfillment" that really helped in creating better understanding among students about the main motive in life (i.e. achieving state of continuous happiness and prosperity) and how one can achieve it.Reasons behind occoucrance of certain unwanted emotions and ways to control them were also shared with an objective to assist students in making positive changes in their life that leads to holistic development and thus reducing the gap between what one wants to be and what they currently are.
 #### Both sessions took freshers one step closer to their goal by inculcating vital qualities like confidence,positivity,determination,discipline,patience etc. that are needed for a successful life.
+## Day3
+#### It started at 9:30 am with p2p lecture by 3rd year seniors who explained us c++ basics really well.It was an amazing class.All the students enjoyed this lecture anf felt comfortable asking their doubts thanks to kind nature of our seniors.
+#### Another lecture was of English by Prof. MANJOT KAUR who took introduction from all the students talking about their strengths,weaknesses and hobbies to understand her students better.
+#### We were provided with one hour break from 11:30 am to 12:30 pm during which me and my friends explored campus and shared sense of belonging.
+#### Then we headed to auditorium to attend the session by causmic club who's members introduced themselves and later an expert lecture by Dr.PRIYA DARSHINI madam who continued her lecture on UNIVERSAL HUMAN VALUES from day3. 
+#### Session with a view of helping students who wants to buy a laptop was held in which full information about various concerns while choosing a laptop was shared.
+#### At last , great performances were given by seniors that freshened up mind of all the students present.
